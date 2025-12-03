@@ -9,7 +9,7 @@
 **[https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
 
 
-![screenshot](https://i.ytimg.com/vi/vny4orX-X_Y/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLAsthe64Pi9nMbI2166yqNRMRyxdQ)
+![screenshot](https://i.ytimg.com/vi/Xkel1_sb2hc/hq720.jpg?v=692ef792&sqp=CIDlvMkG-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLDjh-Yo1dfahSwXRiEMMzeHa_rGUQT)
 
 
 ## ⭐ Почему тебе понравится у нас
