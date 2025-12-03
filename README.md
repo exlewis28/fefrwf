@@ -11,7 +11,9 @@
 **[https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
 **[https://discord.gg/PBg9HHX4Fm](https://discord.gg/PBg9HHX4Fm)**
 
-![screenshot](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmmorpg-blog.ru%2F101104.html&psig=AOvVaw3dvqcFNP7uu67E_WmL78XV&ust=1764868678882000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCNCwtqr2oZEDFQAAAAAdAAAAABAE)
+
+![screenshot](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.youtube.com%2Fwatch%3Fv%3Dvny4orX-X_Y&psig=AOvVaw2QScjDh59tynQymtxK89YJ&ust=1764868732652000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCMitjt32oZEDFQAAAAAdAAAAABAK)
+
 
 ## ⭐ Почему тебе понравится у нас
 
